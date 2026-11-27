@@ -4,7 +4,7 @@
 
 🙋‍♀️ Deepen Your Spiritual Journey Today
 
-Download the official Gita Samvad (गीता संवाद) Android App to access all 18 chapters, offline Sanskrit audio, the Struggle Guide, and Krishna–Arjuna dialogues.
+Download the official Gita Samvad (गीता संवाद) [Android App](https://play.google.com/store/apps/details?id=com.amitpuri.gita) to access all 18 chapters, offline Sanskrit audio, the Struggle Guide, and Krishna–Arjuna dialogues.
 
 
 <!--
